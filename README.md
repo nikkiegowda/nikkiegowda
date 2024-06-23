@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently learning
+I'm currently learning<br>Check out my resume here https://rb.gy/v2167y
 
 
 ## 🌐 Socials:
@@ -14,4 +14,5 @@ I'm currently learning
 
 ---
 [![](https://visitcount.itsvg.in/api?id=nikkiegowda&icon=0&color=0)](https://visitcount.itsvg.in)
+
 

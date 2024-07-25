@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently learning<br>Check out my resume here [Resume](https://drive.google.com/file/d/1YCJL9BwrWyGSy2OBH5haCdXOZGXadOxt/view)
+I'm currently learning<br>Check out my resume here [Resume](https://drive.google.com/file/d/13ZAwbFQDJgRSoThvPx3NAyXms7bk3JSj/view?usp=drive_link)
 
 
 ## 🌐 Socials:
